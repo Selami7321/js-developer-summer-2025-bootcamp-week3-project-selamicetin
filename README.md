@@ -1,0 +1,1 @@
+# js-developer-summer-2025-bootcamp-week3-project-selamicetin
